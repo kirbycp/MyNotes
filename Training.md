@@ -1,0 +1,4 @@
+# Learning / Education
+- [ ] Complete [Fusion360 into course](https://www.linkedin.com/learning/learning-fusion-360-12732882/automatic-updates?autoSkip=true&resume=false&u=2045532)
+- [ ] [Complete Advance Extra Course](https://study.hamradioprep.com/courses/take/extra-class-2024-2028/)
+- [ ] [Complete Satelite Comm's Course](https://hamradioprep.com/satellite-and-space-operations/?_gl=1*8wjeqz*_gcl_aw*R0NMLjE3NjMzNTEwMDYuQ2owS0NRaUFpZWJJQmhEbUFSSXNBRThQR05MaWRKTzRTSFp3S3pYc1hkckNlMWJJdllmcklSWmNQTE15VjBfTXBDcG5UQk1FZm5XQXd0UWFBbDNORUFMd193Y0I.*_gcl_au*OTIzNzY4OTcxLjE3NjMzNTEwMDY.*_ga*NjMzMjM0NDYzLjE3NjMzNTEwMDY.*_ga_KB7TH3P2RD*czE3NjMzNTEwMDUkbzEkZzEkdDE3NjMzNTEwMjAkajQ1JGwwJGg3OTQzMjc1NzMkZHFKY2tNQ195S3dYa3pPQjY0eDA1ZWZreHNMS3NkRWpud1E.)
