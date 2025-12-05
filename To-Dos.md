@@ -2,3 +2,5 @@
 - [ ] Update Bronco build links
 - [ ] APRS droid training
 - [ ] finish website articles on programming 
+- [ ] Work on StreamDeck Profiles
+- [ ] 
