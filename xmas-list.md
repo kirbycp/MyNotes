@@ -13,7 +13,8 @@
 - - Seattle Kraken Abyss Jersey Size XXXl or size 56 (blank or custom with number 36 and my name would be cool)
 - Goldtoe Ankle Black Socks
   - [Amazon Link](https://www.amazon.com/GOLDTOE-Ultra-Performance-Ankle-3-Pairs/dp/B00U7XCA0I/ref=sr_1_24?crid=2EQ7X5A6TNL2G&dib=eyJ2IjoiMSJ9.88EQDjfcL9SRX6v6mlIgec8W6gaH4-lvztCCoxFg33sN-Uc43_SmyWhbqoMhDK567fjAJw1GZPuZk8QkkjfzWCSmyPZN6qp5kxgEDZtP0n3r0mB8MMoah-38IBbQTqqbRTnI6L4gAne_KMSugPTpw-uyeX5sYrSPR4ZlRsVRFpXeKHm7w6M3_SIOAsnMKANq0ITFJpKicCaB-6lj5jzlsNWDWO907I0wESN-Mg4iVtcF0ObqJjyyGDW2gKicbbBmKcharjK-PnLKDHu9vOZZBboLvldl42kEIttXfYc31Ts.1p5b0AhjdzKl39Zz1nX-cK7ODbEhi9rhtVL0G5Wpmco&dib_tag=se&keywords=Goldtoe%2Bsocks&qid=1764905346&sprefix=goldtoe%2Bsocks%2Caps%2C140&sr=8-24&th=1&psc=1)
-
+- Legos
+  - [Shelby 427 Cobra](https://www.lego.com/en-us/product/shelby-cobra-427-sc-10357)   
 - Bourbon
   - Medium Cost
     - Wild Turkey Rare Bird
