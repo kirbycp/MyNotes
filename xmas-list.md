@@ -2,11 +2,17 @@
 
 My Xmas wish items in no particular order with links to purchase if you are so inclined:
 
+- Slippers [Amazon Link to some I like, Size 10.5 Wide](https://www.amazon.com/RockDove-Original-Two-Tone-Memory-Slipper/dp/B0FV3KGWRY/ref=sr_1_6?dib=eyJ2IjoiMSJ9.v53FfcDo_QOuqX1ZYAEiNTpdAePk3VXh8T1wgmDtXJGPqJEKDtH9pbO4myBrw52CpuEEihSGONXRTHv8B2P31pz9N_DU-iVuhBN0ss8ebsncoj2iCgQxWPTAXwX5KSb-xiJoRSEZa33UFOVyA60GELG9-t5LUMR_7zMsDkPhNkB8lu1jL2JsSKGTy-Gi6mjKhdzjBHbm193S7tZayILN7MtYXdfw2p2prbk3IvHB55xwS1rg0wxwL-QPEc4coBvgc7U8BQHyqoqlXh_ZUdgONhU7EYttvszXKATWKnKRJQM.to7rlI6Wm54kC5gNme1R88Kp1wxcyeoDjQ1A7TF4bZk&dib_tag=se&hvadid=685798875533&hvdev=c&hvexpln=0&hvlocphy=9026838&hvnetw=g&hvocijid=5890067942524136081--&hvqmt=b&hvrand=5890067942524136081&hvtargid=kwd-300675072656&hydadcr=7854_13469645&keywords=world%27s%2Bmost%2Bcomfortable%2Bslippers&mcid=0f9544f960c03121b2df5a8c6c575a0f&qid=1764988753&sr=8-6&th=1&psc=1)
+- New Work Shirts
+  - [Untuckit Blue in 2XL](https://www.dxl.com/p/untuckit-fit-by-dxl-delune-plaid-performance-sport-shirt-n3830)
+  - [Untuckit Red in 2XL](https://www.dxl.com/p/untuckit-fit-by-dxl-veneto-sport-shirt-n3833) 
 - Folding Table for the Bronco Rear Door
   - -[IAG Off-Road Multilevel Tailgate Table](https://iagoffroad.com/iag-off-road-multilevel-tailgate-table-for-2021-ford-bronco/)
+- [New Seahawks Jersey #12 size 3xl](https://proshop.seahawks.com/mens-nike-12s-wolf-gray-seattle-seahawks-2025-rivalries-collection-limited-jersey/p-137702284020874317+z-99-3218277868?_ref=p-TLP:m-GRID:i-r2c0:po-6&sku=208915012)
+- - Seattle Kraken Abyss Jersey Size XXXl or size 56 (blank or custom with number 36 and my name would be cool)
 - Goldtoe Ankle Black Socks
   - [Amazon Link](https://www.amazon.com/GOLDTOE-Ultra-Performance-Ankle-3-Pairs/dp/B00U7XCA0I/ref=sr_1_24?crid=2EQ7X5A6TNL2G&dib=eyJ2IjoiMSJ9.88EQDjfcL9SRX6v6mlIgec8W6gaH4-lvztCCoxFg33sN-Uc43_SmyWhbqoMhDK567fjAJw1GZPuZk8QkkjfzWCSmyPZN6qp5kxgEDZtP0n3r0mB8MMoah-38IBbQTqqbRTnI6L4gAne_KMSugPTpw-uyeX5sYrSPR4ZlRsVRFpXeKHm7w6M3_SIOAsnMKANq0ITFJpKicCaB-6lj5jzlsNWDWO907I0wESN-Mg4iVtcF0ObqJjyyGDW2gKicbbBmKcharjK-PnLKDHu9vOZZBboLvldl42kEIttXfYc31Ts.1p5b0AhjdzKl39Zz1nX-cK7ODbEhi9rhtVL0G5Wpmco&dib_tag=se&keywords=Goldtoe%2Bsocks&qid=1764905346&sprefix=goldtoe%2Bsocks%2Caps%2C140&sr=8-24&th=1&psc=1)
-- Seattle Kraken Abyss Jersey Size XXXl or size 56 (custom with number 36 and my name would be cool)
+
 - Bourbon
   - Medium Cost
     - Wild Turkey Rare Bird
