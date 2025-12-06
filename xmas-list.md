@@ -2,6 +2,7 @@
 
 ## My Xmas wish items in no particular order with links to purchase if you are so inclined:
 
+- ~~Laser Engraver~~
 - Slippers [Amazon Link to some I like, Size 10.5 Wide](https://www.amazon.com/RockDove-Original-Two-Tone-Memory-Slipper/dp/B0FV3KGWRY/ref=sr_1_6?dib=eyJ2IjoiMSJ9.v53FfcDo_QOuqX1ZYAEiNTpdAePk3VXh8T1wgmDtXJGPqJEKDtH9pbO4myBrw52CpuEEihSGONXRTHv8B2P31pz9N_DU-iVuhBN0ss8ebsncoj2iCgQxWPTAXwX5KSb-xiJoRSEZa33UFOVyA60GELG9-t5LUMR_7zMsDkPhNkB8lu1jL2JsSKGTy-Gi6mjKhdzjBHbm193S7tZayILN7MtYXdfw2p2prbk3IvHB55xwS1rg0wxwL-QPEc4coBvgc7U8BQHyqoqlXh_ZUdgONhU7EYttvszXKATWKnKRJQM.to7rlI6Wm54kC5gNme1R88Kp1wxcyeoDjQ1A7TF4bZk&dib_tag=se&hvadid=685798875533&hvdev=c&hvexpln=0&hvlocphy=9026838&hvnetw=g&hvocijid=5890067942524136081--&hvqmt=b&hvrand=5890067942524136081&hvtargid=kwd-300675072656&hydadcr=7854_13469645&keywords=world%27s%2Bmost%2Bcomfortable%2Bslippers&mcid=0f9544f960c03121b2df5a8c6c575a0f&qid=1764988753&sr=8-6&th=1&psc=1)
 - New Work Shirts
   - [Untuckit Blue in 2XL](https://www.dxl.com/p/untuckit-fit-by-dxl-delune-plaid-performance-sport-shirt-n3830)
@@ -22,4 +23,3 @@
     - Old Weller Antique 107 Bourbon
 - Laser Engraving Sample Kit
   - [Amazon Link](https://www.amazon.com/Adrattnay-Material-Engraving-Crafting-Engraver/dp/B0D3L7W7GN/ref=sr_1_6?adgrpid=187453184298&dib=eyJ2IjoiMSJ9.jkcniZBrv7OR9USIqRFlkHFtB-qtuVrl3WK7XI9697FgDdSumGIgByz3KfjDotww_EWmkRvYA1gv43KUqrTWmFNh1Wyq3bDLYi-893qlk_7VPjwVVNade3QkPfghU6Dt5bi9CpDO-sx-Vez0jPNds8DlvCtmmxiCaermLxsBU9ZWlhmhOpqNzxS2ug6WWKSley4OcFNvux6kKfH7xIk4W5Kq7lJuiMyXYFk8ySDCfjTlkHgwNISJVmZQup6_jfZXGQMsp031R8fwci5jiHQV9E2acJ7_Ev9sX7be5rYTAME.Ia5YTB2aB9q2TkbeECl_TLN-nkR3ZYm_b-jPyWJ-SsM&dib_tag=se&hvadid=779642596545&hvdev=c&hvexpln=0&hvlocphy=9026838&hvnetw=g&hvocijid=4489070045567977968--&hvqmt=b&hvrand=4489070045567977968&hvtargid=kwd-307082798&hydadcr=4833_13229506_1270389&keywords=laser%2Bengraving%2Bsupplies&mcid=9aaf5c4f348c3026bec1b498e9657985&qid=1764905974&sr=8-6&th=1)
-  - 
