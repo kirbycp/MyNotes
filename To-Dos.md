@@ -1,23 +1,44 @@
 # To-Do's
-- [ ] Update Bronco build links
+
+## Radio Stuff
 - [ ] APRS droid training
-- [ ] finish website articles on programming 
-- [ ] Work on StreamDeck Profiles
-<<<<<<< HEAD
-- [*] add 146.460 to the code plugs
-- [ ] reprogram ht radios to new master plan
-- [ ] program FTx1
-- [ ] complete go bag for FTx1
-- [ ] complete go bag for KX2
-=======
-- [ ] add 146.460 to the code plugs
-- [ ] rebuild Home ASL Node (supermon 7.4, skywarn ng, say time weather)
-- [ ] design HT holder for chameleon Yagi Antenna
-- [ ] complete 2m yagi antenna handle with antenuator and ht mount
-- [ ] reload freq code plugs on HT's
-- [ ] program FTX-1
-- [ ] repack go bags default antenna, power ccessories, adapters
+- [ ] Update Master Freq Plan 
+  - [ ] Reprogram HT radios to new master plan
+- Fox Hunting
+  - [] Design HT holder for chameleon Yagi Antenna
+  - [] Build Attenuator
+  - [] Complete handle for Tape Yagi
+- [ ] Program FTX-1
+- Repack go bags default antenna, power accessories, adapters
 	- [ ] ftx 1
 	- [ ] kx2
 	- [ ] FT 891
->>>>>>> 1c37dc8b8f615b9f9ffc11886495dcec34c4b944
+- Update uConsole
+  - [ ] put in cm5
+  - [ ] update hacker boards
+  - [ ] update image on SSD
+  - [ ] INstall [Intercept](https://github.com/smittix/intercept)
+- Mac Updates
+  - [ ] Install Crossover [Youtube Video](https://www.youtube.com/watch?v=fOwtSHgEv2g)
+        [Instruction Website](https://www.wg1v.org/posts/2023-12-27-Winlink-and-Pat-on-M1-Mac/)
+  - [ ] VARA
+  - [ ] [Varanny](https://github.com/islandmagic/varanny)
+  - [ ] WinLink
+  - [ ] RT Systems
+
+
+## Ham Radio Lab
+- [ ] Finish website articles on programming 
+
+
+## Overland / Bronco
+- [ ] Update Bronco build links
+
+## Other
+- [ ] Work on StreamDeck Profiles
+- [ ] Learn Fusion
+- [ ] Learn LightBurn
+
+
+
+
