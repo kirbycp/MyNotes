@@ -6,8 +6,12 @@ Reference Links:
 
 ## Exterior Upgrades
 
-### Roof Top Tent
--[VLife 4x4 Bronco Hard Top / Tent](https://www.vlife4wd.com/ford-bronco/)
+### Hard Top
+- ~~[Turn Off Road Hardtop](https://turnoffroad.com/products/2021-ford-bronco-hard-top-4-door)~~
+
+### Roof Rack
+- [ ] [TailRax Roof Rack with PackRacks](https://trailrax.com/products/trailrax-modular-roof-rack-for-the-ford-bronco-4-door?variant=42350101463207)
+
 
 ### External Lights:
 [Complete Kits](https://www.specialtyperformanceparts.com/collections/ford-bronco-bronco-sport-light-kits)
@@ -18,8 +22,9 @@ Reference Links:
 
 
 ### Front Bumper:
-  - Bumper TBD
-  - Winch
+  - [IAG I-Line Heavy Duty Winch Mount For 2021+ Ford Bronco](https://iagoffroad.com/iag-i-line-heavy-duty-winch-mount-for-2021-ford-bronco-modular-capable-bumper-only/)
+  - [WARN VR EVO 10-S ](https://www.4wheelparts.com/product/winch-103253-103253)
+  - Fair Lead?
 
 ### Wheels
 - ~~Method 501's in Black~~
